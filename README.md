@@ -1,1 +1,0 @@
-# shalomscienceinstitute.github.io
